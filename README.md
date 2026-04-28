@@ -27,6 +27,7 @@ I'm available for freelance projects and remote work.
 If you need a custom AutoCAD tool, feel free to reach out.
 
 🌐 [LinkedIn](https://www.linkedin.com/in/ali-al-abdullah-ab2657376/)
+
 📧 ali.nazeer.alabdullah@gmail.com
 
 ---
