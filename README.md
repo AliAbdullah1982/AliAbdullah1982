@@ -26,8 +26,8 @@ I help engineers and companies automate repetitive CAD tasks by building custom 
 I'm available for freelance projects and remote work.  
 If you need a custom AutoCAD tool, feel free to reach out.
 
-🌐 [LinkedIn](https://www.linkedin.com/in/ali-al-abdullah-ab2657376/)
-📧 [Email –ali.nazeer.alabdullah@gmail.com
+🌐 [LinkedIn](https://www.linkedin.com/in/ali-al-abdullah-ab2657376/)  
+📧 ali.nazeer.alabdullah@gmail.com
 
 ---
 
